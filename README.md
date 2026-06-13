@@ -141,7 +141,7 @@
 
 ## 📫 Connect With Me
 
-📧 Email: [husseinalhamed7952@gmail.com](husseinalhamed7952@gmail.com)
+📧 Email: husseinalhamed7952@gmail.com
 
 💼 LinkedIn: www.linkedin.com/in/hussein-alhamed-37627b3b1
 
