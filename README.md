@@ -143,7 +143,7 @@
 
 📧 Email: [your-email@example.com](mailto:your-email@example.com)
 
-💼 LinkedIn: https://linkedin.com/in/your-profile
+💼 LinkedIn: www.linkedin.com/in/hussein-alhamed-37627b3b1
 
 🌍 Location: Mukalla, Hadhramaut, Yemen
 
