@@ -141,7 +141,7 @@
 
 ## 📫 Connect With Me
 
-📧 Email: [your-email@example.com](mailto:your-email@example.com)
+📧 Email: [your-email@example.com](husseinalhamed7952@gmail.com)
 
 💼 LinkedIn: www.linkedin.com/in/hussein-alhamed-37627b3b1
 
