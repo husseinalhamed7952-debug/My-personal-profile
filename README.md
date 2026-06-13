@@ -141,11 +141,11 @@
 
 ## 📫 Connect With Me
 
-📧 Email: [your-email@example.com](husseinalhamed7952@gmail.com)
+📧 Email: [husseinalhamed7952@gmail.com](husseinalhamed7952@gmail.com)
 
 💼 LinkedIn: www.linkedin.com/in/hussein-alhamed-37627b3b1
 
-🌍 Location: Mukalla, Hadhramaut, Yemen
+🌍 Location:  Hadhramaut, Yemen
 
 ---
 
